@@ -1,0 +1,4 @@
+# Weapon_AEBase_GCatsSpecialWeapons
+GCats Special Weapon Pack for AEBase
+
+https://cdn.discordapp.com/attachments/987180728414527498/989277387822862397/6d0a65e9717aeb25576294f5b115f9d4bbf22cb8da2a18101602eb17487c7946_1.mp4
